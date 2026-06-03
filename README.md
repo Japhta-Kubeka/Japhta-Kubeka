@@ -117,3 +117,4 @@ No publications yet.
 
 * 🔗 LinkedIn: [Japhta Thabo Kubeka](https://www.linkedin.com/in/japhta-thabo-kubeka-4b8524344/)
 * 🔗 GitHub: (Add your GitHub profile link here)
+* 🔗 Bold Profile:https://bold.pro/my/japhta-kubeka-260603110348
